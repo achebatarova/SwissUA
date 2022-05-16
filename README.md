@@ -518,6 +518,9 @@ https://www.green.ch/en/ukraine-internet
 Адреса: 1260 Nyon, Rte de Divonne 8b (Gymnase de Nyon).
 Є можливість приходити з дітьми, по них подбають під час лекції. 
 
+Іще одні безкоштовні курси французької мови онлайн:
+https://www.ensembleua.com/
+
 
 YouTube курс [Німецька для початківців](https://youtube.com/playlist?list=PLvA1Dz5ctE4lbn5vIQOEjNvs70WFygdee). Нові короткі відео курсу додаються майже щоденно.
 
